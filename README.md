@@ -1,1 +1,1 @@
-# Mening-Do-stlarim
+# Mening Dostlarim
